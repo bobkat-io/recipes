@@ -1,5 +1,7 @@
 # Broccoli Cheddar Soup
 
+> Adapted from [this recipe](http://www.averiecooks.com/2015/01/best-broccoli-cheese-soup-better-panera-copycat.html)
+
 ## Ingredients 
 
 * 5 tablespoons butter

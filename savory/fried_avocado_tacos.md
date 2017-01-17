@@ -1,4 +1,4 @@
-# Fried Avacado Tacos
+# Fried Avocado Tacos
 
 > Adapted from [this recipe](http://www.bonappetit.com/recipe/fried-avocado-tacos)
 

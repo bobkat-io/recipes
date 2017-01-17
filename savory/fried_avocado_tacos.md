@@ -11,7 +11,7 @@
 * 1/2 teaspoon chili powder (optional)
 * 1/2 teaspoon salt
 * 1/2 teaspoon pepper (optional, to taste)
-* 2 ripe avacados, halved and cut into wedges
+* 2 ripe avocados, halved and cut into wedges
 * vegetable oil for frying
 * corn tortillas
 
@@ -27,12 +27,12 @@
 1. In a deep skillet, start heating oil to 350 degrees
 1. Prepare flour, eggs, and panco in three seperate bowls
 1. Add cayenne, chili powder, salt, and pepper to flour and mix thoroughly 
-1. Working in batches, dredge avacado slices in flour, shaking off excess, then egg, then panco
-1. Lightly fry coated avacado slices until golden brown, roughly 2 minutes each, flipping halfway
+1. Working in batches, dredge avocado slices in flour, shaking off excess, then egg, then panco
+1. Lightly fry coated avocado slices until golden brown, roughly 2 minutes each, flipping halfway
 1. Transfer to paper-lined plate to drain
 
 ## Optional Serving Instructions
 
 1. Place refied beans on corn tortillas
-1. Place 2-3 slices of avacado on top of beans
+1. Place 2-3 slices of avocado on top of beans
 1. Sprinkle with pico de gallo, cheese, lettuce, as desired

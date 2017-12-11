@@ -14,4 +14,5 @@
 
 1. Add ingredients to shaker tin. Seal and dry shake
 1. Open shaker tin, add ice. Seal and reshake
+1. Pour into a short glass, garnishing with nutmeg
 1. Serve

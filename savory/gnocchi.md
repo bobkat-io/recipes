@@ -21,6 +21,6 @@
 1. Kneed potato dough until consistent in texture
 1. Pull off pieces of potato dough and form into "snakes", about 1/2 inch in diameter
 1. Slice into 1/2 to 3/4 inch pieces
-  * Optional: score with a fork 
+    * Optional: score with a fork 
 1. Submerge gnocchi in boiling water and cook until done, about 5 minutes, stirring occasionally. Gnocchi will float when done.
 1. Toss cooked gnocchi in a large bowl with olive oil, parmesian, italian seasoning, salt, and pepper

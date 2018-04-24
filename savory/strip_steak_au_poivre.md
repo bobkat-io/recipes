@@ -14,11 +14,11 @@
 ## Directions
 
 1) Season steaks with salt and fresh ground pepper
-2) Sous vide steaks for 1 hour at 132f for a slightly rare medium
-3) Pre-heat a cast iron skillet and add oil
-4) Add steaks to pan to finish. Immediately add butter. Sear and remove from pan.
-5) Reduce heat, add finely chopped shallots until browned
-6) Add 1/2 cup brandy, flambe
-7) Add 1 cup heavy cream. Bring to a low boil and reduce.
-8) When sauce reduced by half, add cracked black pepper
-9) Salt sauce to taste and serve over steaks
+1) Sous vide steaks for 1 hour at 132f for a slightly rare medium
+1) Pre-heat a cast iron skillet and add oil
+1) Add steaks to pan to finish. Immediately add butter. Sear and remove from pan.
+1) Reduce heat, add finely chopped shallots until browned
+1) Add 1/2 cup brandy, flambe
+1) Add 1 cup heavy cream. Bring to a low boil and reduce.
+1) When sauce reduced by half, add cracked black pepper
+1) Salt sauce to taste and serve over steaks

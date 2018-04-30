@@ -18,7 +18,7 @@
 ## Directions
 
 1. Preheat the oven to 325 degrees. Butter a bread loaf ban
-1. Cream the sguar and buter in a large mixing bowl until light and fluffy
+1. Cream the sugar and butter in a large mixing bowl until light and fluffy
 1. Beat in the eggs one at a time
 1. Mash the bananas with a fork in a small bowl, then mix in the milk and cinnamon
 1. In a separate bowl, mix together the flour, baking powder, baking soda, and salt

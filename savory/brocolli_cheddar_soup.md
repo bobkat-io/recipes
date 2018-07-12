@@ -13,6 +13,7 @@
 * 3 cups broccoli florets
 * 2 carrots
 * 8 ounces grated sharp cheddar cheese
+* 1 tsp cayenne
 * salt, to taste
 * pepper, to taste
 
@@ -26,7 +27,8 @@
 1. Simmer over low to medium heat for 15 minutes to reduce, stirring occasionally
 1. While mixture is simmering, prepare broccoli florets and chop carrots
 1. After 15 minutes or when mixture has adequately thickened, add broccoli, carrots, and onion and garlic mixture previously prepared
-1. Allow soup to continue to simmer over low heat for 20 more minutes, stirring occasionally
+1. Allow soup to continue to simmer over low heat, stirring occasionally
 1. While mixture is simmering, grate cheese
-1. After 20 minutes, slowly add cheese while stirring to incorporate
-1. After cheese is completely melted and incorporated, serve, garnishing with additional grated cheedar cheese 
+1. After soup has simmered for 20 minutes, slowly add cheese while stirring to incorporate
+1. After cheese is completely melted and incorporated, add cayenne, salt and pepper to taste
+1. Serve, garnishing with additional grated cheedar cheese 

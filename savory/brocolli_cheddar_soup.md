@@ -19,14 +19,12 @@
 
 ## Directions
 
-1. In a medium saucepan, sautée onion with 1 tablespoon butter over medium heat, until translucent and barely browned
-1. Add chopped garlic and continue cooking for 30 seconds
-1. Remove saucepan from heat and set aside
 1. In a large pot, add remaining 4 tablespoons of butter and flour, mixing over medium heat until flour is thickened
 1. Slowly add vegetable stock and half-and-half while continuing to stir
-1. Simmer over low to medium heat for 15 minutes to reduce, stirring occasionally
-1. While mixture is simmering, prepare broccoli florets and chop carrots
-1. After 15 minutes or when mixture has adequately thickened, add broccoli, carrots, and onion and garlic mixture previously prepared
+1. Simmer over low to medium heat for to reduce, stirring occasionally
+1. Prepare broccoli florets, chop onion, and finely shred carrots
+1. In a medium saucepan, sautée onion with 1 tablespoon butter over medium heat, until translucent and barely browned. Add chopped garlic and continue cooking for 30 seconds.
+1. After stock mixture has adequately thickened, add broccoli, carrots, and onion and garlic mixture previously prepared
 1. Allow soup to continue to simmer over low heat, stirring occasionally
 1. While mixture is simmering, grate cheese
 1. After soup has simmered for 20 minutes, slowly add cheese while stirring to incorporate

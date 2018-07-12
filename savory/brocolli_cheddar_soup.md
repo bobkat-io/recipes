@@ -19,10 +19,10 @@
 
 ## Directions
 
+1. Prepare broccoli florets, chop onion, and finely shred carrots
 1. In a large pot, add remaining 4 tablespoons of butter and flour, mixing over medium heat until flour is thickened
 1. Slowly add vegetable stock and half-and-half while continuing to stir
 1. Simmer over low to medium heat for to reduce, stirring occasionally
-1. Prepare broccoli florets, chop onion, and finely shred carrots
 1. In a medium saucepan, sautée onion with 1 tablespoon butter over medium heat, until translucent and barely browned. Add chopped garlic and continue cooking for 30 seconds.
 1. After stock mixture has adequately thickened, add broccoli, carrots, and onion and garlic mixture previously prepared
 1. Allow soup to continue to simmer over low heat, stirring occasionally

@@ -1,4 +1,4 @@
-# Banana Bread
+# Banana Crumb Muffins
 
 > Adapted from [this recipe](http://allrecipes.com/recipe/17652/banana-crumb-muffins/)
 

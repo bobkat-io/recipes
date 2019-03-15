@@ -18,7 +18,7 @@
 * Gather dough into ball; flatten into a disk
 * Wrap dough disk in plastic wrap, chill 2 hours or overnight
 
-# Pie Crust Baking Instructions
+## Pie Crust Baking Instructions
 
 * Remove the disk of dough from the fridge and 
 * Preheat the oven to 375 degrees to sit at room temperature for 5 minutes
@@ -42,6 +42,8 @@ Filling Ingredients:
 * 2 tablespoons lemon juice
 * 5 cups fresh blueberries, rinsed and dried
 * 1 small apple, peeled and cored, then grated
+
+
 Crumble topping ingredients:
 * 2/3 cup unbleached all-purpose flour
 * 1/3 cup light brown sugar
@@ -49,6 +51,7 @@ Crumble topping ingredients:
 * 1 tablespoon granulated sugar
 
 ## Directions
+
 1. Whisk together the sugar, cornstarch and lemon zest in a large bowl
 1. Add the clean, dry blueberries to the bowl along with the grated apple
 1. Gently turn the mixture to combine the blueberries with a rubber spatula

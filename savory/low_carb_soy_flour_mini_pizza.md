@@ -7,7 +7,7 @@
 
 * 1/2 cup shredded mozzarella cheese
 * 1 tbsp cream cheese, cubed
-* 1/3 cup soy flour or coconut flour
+* 1/3 cup soy flour OR 1/6 cup coconut flour
 * 1 large egg
 * pinch of salt
 

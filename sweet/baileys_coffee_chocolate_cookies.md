@@ -1,4 +1,4 @@
-# Pi Day Apple Pie
+# Bailey's Coffee Chocolate Coffee Cookies
 
 > Adapted from [The Food Network's May 2018 guide to 50 chocolate chip cookies](https://www.foodnetwork.com/recipes/packages/baking-guide/cookies-and-bars/50-chocolate-chip-cookies).
 

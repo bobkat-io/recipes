@@ -29,3 +29,6 @@
 1. Arrange dough 2 inches apart on a parchment-lined baking sheet
 1. Bake until the edges set, 12-15 minutes
 1. Cool for 8 minutes on the pan then transfer to a rack
+
+## Modifications
+For bourbon browned butter cookies, add 1 tbsp molasses to the brown sugar and 2 tbsp bourbon with the egg and vanilla.

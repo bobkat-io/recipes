@@ -23,7 +23,7 @@ Optional:
 1. Remove egg from the fridge
 1. In a small saucepan, brown the 10 tbsp butter. Immediately pour into a glass measuring cup, and (optional) add 2 tbsp of chilled bourbon OR 2 tbsp ice to equal 150 mL
 1. Whisk the 220 grams flour, 3/4 tsp baking soda, and 1/2 tsp salt in a medium bowl
-1. In a large bowl, beat the 185 grams light brown sugar, (cooled browned) butter, and (optional) 1 tbsp on medium-high speed until well-combined
+1. In a large bowl, beat the 185 grams light brown sugar, (cooled browned) butter, and (optional) 1 tbsp molasses on medium-high speed until well-combined
 1. Beat in the egg and 1 tsp vanilla
 1. Reduce the mixer speed to low and beat in the flour mixture until just combined
 1. Refrigerate the dough for 15 minutes

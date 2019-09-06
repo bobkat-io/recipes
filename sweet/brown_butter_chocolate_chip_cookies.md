@@ -7,26 +7,22 @@
 * 220 grams all-purpose flour
 * 3/4 tsp baking soda
 * 1/2 tsp salt
-* 10 tbsp unsalted butter
-* 185 grams light brown sugar
+* 10 tbsp unsalted butter, divided
+* 200 grams granulated sugar
 * 1 large egg, room temp
 * 1 tsp Mexican vanilla extract
 * 1 cup semi-sweet chocolate chips
 
-Optional:
-* 2 tbsp bourbon, chilled
-* 1 tbsp molasses
-
 ## Directions
 
 1. Do not preheat the oven, browned butter and later dough need to chill
-1. Remove egg from the fridge
-1. In a small saucepan, brown the 10 tbsp butter. Immediately pour into a glass measuring cup, and (optional) add 2 tbsp of chilled bourbon OR 2 tbsp ice to equal 150 mL
+1. Remove egg from the fridge, and 10 tbsp butter. 5 tbsp of butter will sit to warm to room temp
+1. In a small saucepan, brown the other 5 tbsp butter. Immediately pour into a glass measuring cup, and tbsp ice to equal 75 mL
 1. Whisk the 220 grams flour, 3/4 tsp baking soda, and 1/2 tsp salt in a medium bowl
-1. In a large bowl, beat the 185 grams light brown sugar, (cooled browned) butter, and (optional) 1 tbsp molasses on medium-high speed until well-combined
+1. In a large bowl, beat the 200 grams granulated sugar, cooled browned butter, and room temperature butter
 1. Beat in the egg and 1 tsp vanilla
 1. Reduce the mixer speed to low and beat in the flour mixture until just combined
-1. Refrigerate the dough for 15 minutes
+1. If dough is warm from the browned butter, refrigerate the dough for 15 minutes before adding in chocolate chips
 1. Stir in the 1 cup chocolate chips
 1. Refrigerate the dough for at least 30 minutes
 1. Preheat the oven to 375 degrees F

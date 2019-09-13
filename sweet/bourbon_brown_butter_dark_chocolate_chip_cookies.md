@@ -12,8 +12,9 @@
 * 150 grams dark brown sugar
 * 1 large egg, room temp
 * 1 tsp Mexican vanilla extract
-* 1 cup dark chocolate chunks
+* 1 cup 72% bittersweet chocolate chunks
 * 2 tbsp bourbon, chilled
+* Flaky sea salt
 
 ## Directions
 
@@ -25,10 +26,11 @@
 1. Beat in the egg and 1 tsp vanilla
 1. Reduce the mixer speed to low and beat in the flour mixture until just combined
 1. If dough is warm, refrigerate the dough for 15 minutes before adding chocolate
-1. Stir in the 1 cup dark chocolate chunks
+1. Stir in the 1 cup 72% semisweet chocolate chunks
 1. Refrigerate the dough for at least 30 minutes
 1. Preheat the oven to 375 degrees F
-1. Use a cookie scoop to roll the dough into 1 1/2 inch balls
+1. Use a cookie scoop to roll the dough into 1 1/2 tbsp balls
 1. Arrange dough 2 inches apart on a parchment-lined baking sheet
+1. Sprinkle balls of dough with flaky sea salt
 1. Bake until the edges set, 12-15 minutes
 1. Cool for 8 minutes on the pan then transfer to a rack

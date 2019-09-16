@@ -8,7 +8,7 @@
 * 3/4 tsp baking soda
 * 1/2 tsp salt
 * 10 tbsp unsalted butter, divided
-* 50 grams graulated sugar
+* 50 grams granulated sugar
 * 150 grams dark brown sugar
 * 1 large egg, room temp
 * 1 tsp Mexican vanilla extract

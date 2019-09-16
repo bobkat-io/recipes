@@ -1,4 +1,4 @@
-# Kaitlyn's Bourbon Brown Butter DarkChocolate Chip Cookie Recipe
+# Kaitlyn's Bourbon Brown Butter Dark Chocolate Chip Cookie Recipe
 
 > Adapted from [The Food Network's May 2018 guide to 50 chocolate chip cookies](https://www.foodnetwork.com/recipes/packages/baking-guide/cookies-and-bars/50-chocolate-chip-cookies).
 

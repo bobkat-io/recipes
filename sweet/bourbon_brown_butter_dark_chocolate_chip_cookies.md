@@ -19,11 +19,11 @@
 ## Directions
 
 1. Do not preheat the oven, browned butter and later dough need to chill
-1. Remove egg from the fridge. Remove egg from the fridge, and 10 tbsp butter. 5 tbsp of butter will sit to warm to room temp
-1. In a small saucepan, brown the other 5 tbsp butter. Immediately pour into a glass measuring cup, and add 2 tbsp of chilled bourbon. If the liquid mixture doesn't equal 75 mL, add cold water or ice to total 75 mL
+1. Remove egg from the fridge, and 10 tbsp butter. 5 tbsp of butter will sit to warm to room temp
+1. In a small saucepan, brown the other 5 tbsp butter. Immediately pour into a glass measuring cup. If the liquid mixture doesn't equal 75 mL, add cold water or ice to total 75 mL
 1. Whisk the 220 grams flour, 3/4 tsp baking soda, and 1/2 tsp salt in a medium bowl
 1. In a large bowl, beat the 50 grams granulated sugar, 150 grams dark brown sugar, cooled browned butter, and 5 tbsp room-temp butter on medium-high speed until well-combined and mixture is light and fluffy
-1. Beat in the egg and 1 tsp vanilla
+1. Beat in the egg, 1 tsp vanilla, and 2 tbsp of chilled bourbon.
 1. Reduce the mixer speed to low and beat in the flour mixture until just combined
 1. If dough is warm, refrigerate the dough for 15 minutes before adding chocolate
 1. Stir in the 1 cup 72% semisweet chocolate chunks

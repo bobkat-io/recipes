@@ -1,4 +1,4 @@
-# Pi Day Apple Pie
+# Blueberry Bourbon Crumble Pie
 
 > Adapted from [this pie dough recipe](https://www.bonappetit.com/recipe/butter-pie-crust), [this pie recipe](https://www.savingdessert.com/blueberry-crumble-pie/), and [this pie recipe](https://food52.com/recipes/27247-black-blueberry-bourbon-crumble-pie).
 

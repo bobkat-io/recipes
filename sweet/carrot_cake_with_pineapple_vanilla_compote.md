@@ -1,6 +1,6 @@
 # Carrot Cake with Pineapple Vanilla Bean Compote and Cream Cheese Frosting
 
-> Adapted from [this BA's Best recipe](https://www.bonappetit.com/recipe/bas-best-carrot-cake?fbclid=IwAR09y8RapRiRA1RaxalNy4NPnDGmt-1jeM_mxwN4HOUPqMEEqe6Gpf02PDg), [video of the recipe](https://www.youtube.com/watch?v=8-5yLt1gqIo&feature=youtu.be&t=819&fbclid=IwAR1x_kVasxWGq3lVzNveABrvEa-rci0TOeL1JP_5J_gf3Y2UTOC4YXfYE7I) and [BA's Baking School series for the compote](https://youtu.be/TgPG9tQPR7k?t=570)
+> Adapted from [this BA's Best recipe](https://www.bonappetit.com/recipe/bas-best-carrot-cake?fbclid=IwAR09y8RapRiRA1RaxalNy4NPnDGmt-1jeM_mxwN4HOUPqMEEqe6Gpf02PDg), [video of the recipe](https://www.youtube.com/watch?v=8-5yLt1gqIo&feature=youtu.be&t=819&fbclid=IwAR1x_kVasxWGq3lVzNveABrvEa-rci0TOeL1JP_5J_gf3Y2UTOC4YXfYE7I) and [BA's Baking School series](https://youtu.be/TgPG9tQPR7k?t=570) for the compote and techniques.
 
 ## Ingredients 
 

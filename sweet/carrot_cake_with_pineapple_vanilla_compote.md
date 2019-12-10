@@ -7,18 +7,18 @@
 Cake:
 * 1 pound carrots, peeled, coarsely grated
 * 1 cup buttermilk, room temperature
-* 2½ cups all-purpose flour
+* 2 1/2 cups all-purpose flour
 * 2 teaspoons ground cinnamon
 * 2 teaspoons ground ginger
-* ½ teaspoon freshly grated nutmeg
+* 1/2 teaspoon freshly grated nutmeg
 * 2 teaspoons baking powder
-* 1½ teaspoons kosher salt
-* ¾ teaspoon baking soda
-* 4 large eggs, room temperature
+* 1 1/2 teaspoons kosher salt
+* 3/4 teaspoon baking soda
+* 4 large eggs
 * 1 cup granulated sugar
-* ¾ cup (packed) dark brown sugar
+* 3/4 cup (packed) dark brown sugar
 * 2 teaspoons vanilla extract
-* ¾ cup vegetable oil
+* 3/4 cup vegetable oil
 
 Filling:
 * 1 lb fresh chopped pineapple
@@ -29,7 +29,7 @@ Filling:
 
 Frosting and Assembly:
 * 12 ounces cream cheese, room temperature
-* ¾ cup (1½ sticks) unsalted butter, room temperature
+* 3/4 cup (1 1/2 sticks) unsalted butter, room temperature
 * 1 teaspoon vanilla extract
 * Generous pinch of kosher salt
 * 4 cups powdered sugar

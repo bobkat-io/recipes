@@ -1,6 +1,6 @@
 # White chocolate oatmeal cookies
 
-> Adapted from [this recipe](http://allrecipes.com/recipe/15482/white-chocolate-chip-oatmeal-cookies/)
+> Adapted from [this recipe](http://allrecipes.com/recipe/15482/white-chocolate-chip-oatmeal-cookies/). Also see my variant of this recipe, [vegan oatmeal raisin cookies](https://github.com/bobkat-io/recipes/blob/master/sweet/vegan_oatmeal_raisin_cookies.md)!
 
 ## Ingredients 
 
@@ -29,7 +29,3 @@
 1. Bake for 10 to 12 minutes in the oven
 1. Allow cookies to cool on a wire rack
 1. Enjoy!
-
-## Modificiations
-* For oatmeal raisin cookies, substitute 1 cup raisins for the white chocolate chips
-* For vegan oatmeal raisin cookies, subtitute 1 cup raisins for the white chocolate chips, 1/2 cup unsweetened applesauce for the 2 eggs, and 1 cup coconut oil for the butter. 

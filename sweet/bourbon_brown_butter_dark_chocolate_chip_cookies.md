@@ -16,6 +16,8 @@
 * 2 tbsp bourbon
 * Flaky sea salt
 
+Note: you can try this with bread flour instead of all purpose flour! The cookies will be taller and spread out less, but they will still be chewy and not cakey. 
+
 ## Directions
 
 1. Do not preheat the oven, browned butter and later dough need to chill
@@ -32,5 +34,5 @@
 1. Use a cookie scoop to roll the dough into 1 1/2 tbsp balls
 1. Arrange dough 2 inches apart on a parchment or silpat-lined baking sheet
 1. Sprinkle balls of dough with flaky sea salt. Smush any large chunks of salt before sprinkling
-1. Bake until the edges set, 12-15 minutes
+1. Bake until the edges set, 11-15 minutes
 1. Cool for 8 minutes on the pan then transfer to a rack

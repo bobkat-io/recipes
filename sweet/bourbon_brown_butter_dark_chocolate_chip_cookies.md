@@ -4,7 +4,7 @@
 
 ## Ingredients 
 
-* 220 grams all-purpose flour
+* 220 grams all-purpose flour (about ~1 1/2 cups)
 * 3/4 tsp baking soda
 * 1/2 tsp salt
 * 10 tbsp unsalted butter, divided

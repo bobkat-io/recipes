@@ -58,10 +58,10 @@
 1. Cut dough into triangles and transfer to lined baking sheets.
 1. Refrigerate dough on tray until set, you can also leave it overnight or freeze the scone triangles after set in the fridge. 
 
+
 1. When you are ready to bake, preheat the oven to 400 degrees.
 1. Brush buttermilk onto the scones with a pastry brush.
 1. Sprinkle on demerara sugar (for sweet scones), flaky sea salt (for savory scones), or none for scones you will glaze later.
 1. Bake for 18 minutes, checking occasionally and rotating halfway through, until scones have risen and are a golden brown with a crispy outside. For scones from frozen, they will only need an additional minute or two in the oven.
 1. For glazed scones, allow to cool completely before drizzling with glaze.
 1. Serve immediately, as scones will lose their crunchiness overnight.
-

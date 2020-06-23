@@ -45,7 +45,7 @@
     * 1/2 tsp vanilla extract
     * Pinch of salt
 
-## Directions
+## Scone dough prep directions
 1. Do not preheat oven yet, dough needs to chill.
 1. Line baking sheets with parchment paper or Silpat liner.
 1. Cube the 8 tbsp butter into a bowl and refrigerate.
@@ -58,7 +58,7 @@
 1. Cut dough into triangles and transfer to lined baking sheets.
 1. Refrigerate dough on tray until set, you can also leave it overnight or freeze the scone triangles after set in the fridge. 
 
-
+## Baking directions
 1. When you are ready to bake, preheat the oven to 400 degrees.
 1. Brush buttermilk onto the scones with a pastry brush.
 1. Sprinkle on demerara sugar (for sweet scones), flaky sea salt (for savory scones), or none for scones you will glaze later.

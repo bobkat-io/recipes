@@ -2,15 +2,16 @@
 
 ## Ingredients
 
-* 2oz freshly brewed espresso
-* 4oz vodka
-* 1.5oz coffee liquour
+* 2 oz freshly brewed espresso
+* 4 oz vodka
+* 1.5 oz coffee liquour
 * 1 tablespoon sugar
+* ice
 
 ## Directions
 
-1. Add espresso to shaker and agg sugar. Stir to dissolve
-1. Add remaining ingredients
+1. Add 2 oz espresso to shaker and add 1 tbsp sugar. Stir to dissolve
+1. Add remaining ingredients (4 oz vodka, 1.5 oz coffee liquour)
 1. Mix well with ice until chilled
 1. Pour to martini glasses
-1. garnish with espresso beans
+1. Garnish with espresso beans

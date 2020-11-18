@@ -1,4 +1,4 @@
-# No-Nut Pest Puff Pastry Pinwheel
+# No-Nut Pesto Puff Pastry Pinwheel
 
 > Adapted from [this pinwheel recipe](https://www.allrecipes.com/recipe/254216/pesto-puff-pastry-pinwheel/) and [this no-nut pesto recipe](https://themom100.com/recipe/nut-free-basil-pesto-with-pecorino-romano/).
 

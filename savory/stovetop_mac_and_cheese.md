@@ -1,5 +1,6 @@
 # Stovetop Mac and Cheese
 
+## Ingredients
 * 1 1/2 cups small macaroni noodles
 * 1 cup milk
 * 1 tsp sodium citrate
@@ -10,6 +11,7 @@
 * pepper
 * cayenne (optional)
 
+## Directions
 1. Boil 1 1/2 cups of small macaroni noodles according to box instructions
 1. Heat 1 cup of milk over medium low heat
 1. Add 1 tsp sodium citrate and stir until dissolved 

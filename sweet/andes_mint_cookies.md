@@ -2,7 +2,7 @@
 
 > Adapted from [this recipe](http://allrecipes.com/recipe/16212/chocolate-mint-candies-cookies/)
 
-Note: this recipe has been halved. This makes about 24 cookies each with 1.5 tbsp of dough. Adjust accordingly if you want more or less cookies!
+Note: this recipe has been halved. This makes about 18 cookies each with 1.5 tbsp of dough. Adjust accordingly if you want more or less cookies - double it for 3 dozen cookies!
 
 ## Ingredients 
 

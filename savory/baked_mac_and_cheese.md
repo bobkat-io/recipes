@@ -22,6 +22,6 @@
 1. Grate the cheese.
 1. In another pot, warm the milk and water on medium heat. Put in the sodium citrate, mustard and garlic powders, many grinds of pepper and a pinch of cayenne. Put in the butter, cold. Gradually whisk in handfuls of cheese until everything is melted in, then turn off the heat.
 1. Salt the pasta water and par-boil the shells for five minutes.
-1. Oil or spray a baking dish (such as a dutch oven) that holds at least 2.5 quarts. Pour in the drained pasta and then the cheese sauce. Stir to combine. Optionally, sprinkle panko on top. Cover the dish and bake for 45 minutes.
-1. Uncover and bake for an additional 30 minutes until brown on top. If you want it more brown, turn on the broiler at the very end.
+1. Oil or spray a baking dish (such as a dutch oven) that holds at least 2.5 quarts. Pour in the drained pasta and then the cheese sauce. Stir to combine. Cover the dish and bake for 45 minutes.
+1. Uncover and bake for an additional 30 minutes until brown on top. Optionally, sprinkle panko on top. If you want it more brown, turn on the broiler at the very end.
 1. Let rest 30 min before scooping it out.

@@ -6,7 +6,7 @@ Note: this recipe has been halved. This makes about 18 cookies each with 1.5 tbs
 
 ## Ingredients 
 
-* 3/8 cup unsalted butter
+* 3/8 cup (6 tbsp) unsalted butter
 * 3/4 cup light brown sugar
 * 1 tablespoon water
 * 1 cup semisweet chocolate chips
@@ -15,14 +15,15 @@ Note: this recipe has been halved. This makes about 18 cookies each with 1.5 tbs
 * 1/2 teaspoons baking soda
 * 1/4 teaspoon salt
 * 1 package Andes mints
-* 2 drops peppermint extract
+* (Optional) 2 drops peppermint extract
 
 ## Directions
 
-1. In a saucepan over medium heat, melt the sugar, butter and water, stirring occasionally.
-1. Remove from heat, stir in the chocolate chips until melted and set aside to cool for at least 10 minutes.
+1. In a saucepan over medium heat, melt the 3/4 cup light brown sugar, 3/8 cup (6 tbsp) butter and 1 tbsp water, stirring occasionally.
+1. Remove from heat, stir in the 1 cup chocolate chips until melted and set aside to cool for at least 10 minutes.
 1. While cooling, combine the dry ingredients in a medium bowl: 1 1/4 cups flour, 1/2 tsp baking soda, 1/4 teaspoon salt
 1. Pour the chocolate mixture into a large bowl, then beat in the egg
+1. (Optional) add 2 drops peppermint extract
 1. Slowly combine the dry mixture into the chocolate mixture. 
 1. Cover and refrigerate dough for at least 1 hour.
 1. Preheat oven to 350 degrees F. Place silpat or parchment paper on cookie sheets

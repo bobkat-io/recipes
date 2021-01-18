@@ -1,17 +1,17 @@
-# Chocolate-covered Brown Butter Millionaire's Bars
+# Chocolate-Covered Brown Butter Millionaire's Bars
 
 > Adapted from [this recipe](https://www.halfbakedharvest.com/brown-butter-millionaires-bars/)
 
 ## Ingredients 
 
 Shortbread
-* 1/2 cup salted butter, at room temperature
+* 1/2 cup salted butter at room temperature, divided
 * 1 teaspoon vanilla extract
 * 1/6 cup (8 tbsp) dark brown sugar
 * 1 cup all-purpose flour
 
 Caramel
-* 1 14 ounce can sweetened condensed milk
+* 1 - 14 ounce can sweetened condensed milk
 * 4 tbsp salted butter
 * 2 tbsp real maple syrup
 * 1/2 tablespoon vanilla extract
@@ -19,7 +19,7 @@ Caramel
 Dipping
 * 20 ounces semi-sweet or milk chocolate, chopped
 * 1 tbsp coconut oil
-* flaky sea salt
+* Flaky sea salt
 
 ## Equipment
 * 8x8 pan
@@ -38,9 +38,11 @@ Dipping
 1. Bake 20-22 minutes, until lightly golden and toasted. Remove from the oven and let cool, for at least an hour.
 1. When shortbread has been fully cooled, prepare to make the caramel. 
 1. In a medium pot, combine the can of sweetened condensed milk, 4 tbsp butter, and 2 tbsp maple syrup.
-1. Bring to a boil over medium heat, whisking consistently. Cook the mixture until it turns golden brown in color and has thickened, about 15-20 minutes. Make sure to stir often to avoid burning the milk. Little brown bits are OK.
+1. Bring to a boil over medium heat, whisking consistently.
+1. Cook the mixture until it turns golden brown in color and has thickened, about 15-20 minutes. Make sure to stir often to avoid burning the milk, but small brown bits are fine.
 1. Remove from the heat and whisk in the vanilla.
-1. Immediately pour the caramel over the shortbread and spread in an even layer. Transfer to the fridge to chill, at least 1 hour or 30 minutes in the freezer but preferrably overnight.
+1. Immediately pour the caramel over the shortbread and spread in an even layer.
+1. Transfer to the fridge to chill, at least 1 hour or 30 minutes in the freezer but preferrably overnight.
 1. Cut the bars into 36 squares. Return to fridge or freezer for at least 10 minutes, until you are ready to dip.
 1. Prepare a tray with wax paper. 
 1. Melt the 1 tbsp coconut oil and 20 oz chocolate in the microwave until melted and smooth, stirring occasionally.

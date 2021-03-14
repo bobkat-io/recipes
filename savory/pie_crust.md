@@ -2,6 +2,8 @@
 
 > Adapted from [this pie dough](https://www.marthastewart.com/336777/basic-pie-dough), [this pie dough recipe](https://www.bonappetit.com/recipe/butter-pie-crust), and [this guide](https://sallysbakingaddiction.com/how-to-blind-bake-pie-crust/).
 
+This makes one nine-inch deep-dish crust
+
 ## Pie dough ingredients
 * 1 1/4 cups all-purpose flour
 * 1/2 teaspoon salt

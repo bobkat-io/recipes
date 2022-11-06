@@ -29,7 +29,7 @@ Maple butter
 
 ## Directions
 Muffins
-1. Preheat oven to 375°
+1. Preheat oven to 375° F
 1. Fill muffin tins with 24 paper or silicon muffin liners
 1. Lightly spray the inside of muffin liners with nonstick spray
 1. Whisk 2 1/2 cups flour, 1/2 tsp cinnamon, 2 tsp kosher salt, 1 tsp baking powder, 1/2 tsp baking soda, 1/2 tsp nutmeg, and 1/8 tsp ground cloves in a medium bowl
@@ -43,6 +43,7 @@ Muffins
 
 Maple Butter
 > Maple butter can be made 5 days ahead. Cover tightly with plastic wrap and chill. Let come to room temperature before using.
+
 1. Using an electric mixer on medium-high speed, beat 8 tbsp butter in a large bowl, scraping down sides, until light and fluffy, 5–6 minutes
 1. Add 3 tbsp maple syrup and 1/2 tsp flaky sea salt and beat, scraping down sides of bowl once more, just until incorporated
 1. Transfer maple butter to a small bowl; garnish with more sea salt

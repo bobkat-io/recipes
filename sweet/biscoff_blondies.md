@@ -1,14 +1,14 @@
 # Biscoff Blondies
 
-> Adapted from birthday cake blondies in the same repo
+> Adapted from [birthday cake blondies](https://github.com/bobkat-io/recipes/blob/master/sweet/birthday_cake_blondies.md)
 
 ## Ingredients 
 * 1 cup unsalted butter, room temperature
 * 3/4 cups light brown sugar
 * 3/4 cup granulated sugar
 * 2 teaspoons vanilla extract
-* 2 large eggs
-* 3 tbsp whole milk or milk alternative
+* 2 large eggs, room temperature
+* 3 tbsp whole milk or milk alternative, room temperature
 * 1/2 cup Biscoff cookie butter spread
 * 2 1/4 cups all-purpose flour
 * 1 teaspoon baking soda

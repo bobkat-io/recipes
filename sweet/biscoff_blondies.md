@@ -16,8 +16,8 @@
 * 1 1/2 cups white chocolate chips
 
 ## Directions
-1. Preheat the oven to 375 degrees. Line a 9 by 13-inch baking dish with parchment paper
-1. Combine the 3/4 cup brown sugar, 3/4 cup granulated sugar and 1 cup room-temp butter in a large bowl with an electric mixer until light and fluffy, about 3 minutes
+1. Preheat the oven to 375 degrees. Line a 9 by 13-inch baking dish with parchment paper (a 9x9 will work too for thicker blondies, and will require longer to bake through)
+1. Combine the 3/4 cup brown sugar, 3/4 cup granulated sugar and 1 cup room-temp butter in a large bowl with an electric mixer incredibly thick and fluffy, about 3 minutes. Ensure the mixture is whipped enough or the blondies will be under-aerated and sink in the middle
 1. Beat in the 2 teaspoons vanilla extract
 1. Add two eggs, one at a time, beating well after each
 1. Add 3 tbsp milk and beat until smooth

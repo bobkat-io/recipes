@@ -1,11 +1,10 @@
 # Pumpkin Bread Muffins with Salted Maple Butter
 
-> Adapted from [Bon Appetit's](https://www.bonappetit.com/recipe/pumpkin-bread-with-salted-maple-butter/amp) pumpkin bread recipe
-> Makes 2 dozen muffins
+> Adapted from [Bon Appetit's](https://www.bonappetit.com/recipe/pumpkin-bread-with-salted-maple-butter/amp) pumpkin bread recipe. Makes two dozen muffins.
 
 ## Ingredients
 
-Muffin
+Muffins
 * Nonstick vegetable oil spray
 * 2 1/2 cups all-purpose flour
 * 2 tsp ground cinnamon

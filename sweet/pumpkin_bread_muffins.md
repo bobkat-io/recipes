@@ -19,7 +19,7 @@ Muffins
 * 1 1/2 cups granulated sugar
 * 1 cup extra-virgin olive oil
 * 1/2 cup raw pumpkin seeds
-* Turbinado sugar for finishing
+* Turbinado sugar or other course sugar for finishing
 
 Maple butter
 * 8 tbsp unsalted butter, room temperature
@@ -36,7 +36,7 @@ Muffins
 1. Stream in oil to the wet mixture, whisking constantly until mixture is homogeneous
 1. Gently fold half of dry ingredients into wet mixture until no dry spots remain. Repeat with remaining dry ingredients, stirring to combine but being careful not to overmix
 1. Transfer batter to prepared muffin pan; smooth top with a spatula
-1. Scatter pumpkin seeds over batter, pressing lightly to adhere. Sprinkle seeds with turbinado sugar
+1. Scatter pumpkin seeds over batter, pressing lightly to adhere. Generously sprinkle muffins with turbinado sugar
 1. Bake muffins, rotating tray halfway through, until a tester inserted into the center of a muffin comes out clean, 16-20 minutes
 1. Let cool slightly, then transfer muffins to a wire rack and let cool
 

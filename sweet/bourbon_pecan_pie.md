@@ -1,6 +1,4 @@
-# Cider Bourbon Apple Pie with Oatmeal Cookie Crumble
-
-> Adapted from [this recipe]([https://www.howsweeteats.com/2013/10/cider-bourbon-apple-pie-with-oatmeal-cookie-crumble-in-other-words-the-tale-of-never-fail-pie-crust-part-two/](https://www.tasteofhome.com/recipes/southern-bourbon-pecan-pie))
+# Bourbon Pecan Pie
 
 For pie crust ingredients and instructions, refer to my [pie crust recipe](https://github.com/bobkat-io/recipes/blob/master/savory/pie_crust.md).
 

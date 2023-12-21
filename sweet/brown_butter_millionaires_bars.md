@@ -8,7 +8,7 @@ Shortbread
 * 1/2 cup salted butter at room temperature, divided
 * 1 teaspoon vanilla extract
 * 90 grams dark brown sugar
-* 1 cup all-purpose flour
+* 150 grams all-purpose flour
 
 Caramel
 * 1 - 14 ounce can sweetened condensed milk
@@ -32,8 +32,8 @@ Dipping
 1. Add 1/4 cup butter to a small saucepan set over medium heat, cooking until the butter begins to brown, about 3-4 minutes.
 1. Remove from the heat and transfer to a heatproof bowl, such as a glass measuring cup. Stick in the freezer to chill, 10-15 minutes, but no longer.
 1. Preheat the oven to 350° F. Line a 8x8 inch baking dish with parchment paper.
-1. In a large mixing bowl, beat together the remaining 1/4 cup of butter, the cooled browned butter, 1/6 cup (8 tbsp) dark brown sugar, and 1 tsp vanilla until creamy.
-1. Add the flour and mix until fully combined.
+1. In a large mixing bowl, beat together the remaining 1/4 cup of butter, the cooled browned butter, 90 grams dark brown sugar, and 1 tsp vanilla until creamy.
+1. Add the 150 grams flour and mix until fully combined.
 1. Press the dough into the prepared baking dish.
 1. Bake 20-22 minutes, until lightly golden and toasted. Remove from the oven and let cool, for at least an hour.
 1. When shortbread has been fully cooled, prepare to make the caramel. 

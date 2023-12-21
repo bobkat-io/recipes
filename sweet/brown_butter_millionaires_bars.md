@@ -5,10 +5,11 @@
 ## Ingredients 
 
 Shortbread
-* 1/2 cup salted butter at room temperature, divided
+* 1/2 cup (8 tbsp) unsalted butter at room temperature, divided
 * 1 teaspoon vanilla extract
 * 90 grams dark brown sugar
 * 150 grams all-purpose flour
+* * 1/2 tsp salt
 
 Caramel
 * 1 - 14 ounce can sweetened condensed milk

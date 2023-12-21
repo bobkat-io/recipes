@@ -7,7 +7,7 @@
 Shortbread
 * 1/2 cup salted butter at room temperature, divided
 * 1 teaspoon vanilla extract
-* 1/6 cup (8 tbsp) dark brown sugar
+* 90 grams dark brown sugar
 * 1 cup all-purpose flour
 
 Caramel

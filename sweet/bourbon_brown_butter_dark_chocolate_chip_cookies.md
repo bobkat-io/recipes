@@ -8,8 +8,8 @@
 * 3/4 tsp baking soda
 * 1/2 tsp salt
 * 10 tbsp unsalted butter, divided
-* 100 grams granulated sugar (about ~2/4 cup)
-* 100 grams dark brown sugar (about ~2/4 cup), OR 100 grams granulated sugar + 1 tbsp molasses
+* 100 grams granulated sugar (about ~1/2 cup)
+* 100 grams dark brown sugar (about ~1/2 cup), OR 100 grams granulated sugar + 1 tbsp molasses
 * 1 large egg, room temp
 * 1 tsp Mexican vanilla extract
 * 1 cup 72% bittersweet chocolate chunks
@@ -19,8 +19,8 @@
 ## Directions
 
 1. Do not preheat the oven, browned butter and later the dough will need to chill
-1. Remove egg from the fridge, and 10 tbsp butter
-1. In a small saucepan, brown the 10 tbsp butter. Immediately pour into a glass measuring cup. If the liquid mixture doesn't equal 150 mL, add cold water or ice to total 150 mL
+1. Remove egg from the fridge, and 10 tbsp butter to bring to room temperatur
+1. In a small saucepan, brown 5 tbsp of the butter. Immediately pour into a glass measuring cup. If the liquid mixture doesn't equal 75 mL, add cold water or ice to total 75 mL
 1. Whisk the 220 grams flour, 3/4 tsp baking soda, and 1/2 tsp salt in a medium bowl
 1. In a large bowl, beat the 100 grams granulated sugar, 100 grams dark brown sugar, and cooled browned butter on medium-high speed until well-combined and mixture is light and fluffy
 1. Beat in the egg, 1 tsp vanilla, and 2 tbsp of bourbon.

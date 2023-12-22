@@ -29,7 +29,7 @@ Dipping
 * Wax paper
 
 ## Directions
-
+Shortbread
 1. Add 1/4 cup butter to a small saucepan set over medium heat, cooking until the butter begins to brown, about 3-4 minutes.
 1. Remove from the heat and transfer to a heatproof bowl, such as a glass measuring cup. Stick in the freezer to chill, 10-15 minutes, but no longer.
 1. Preheat the oven to 350° F. Line a 8x8 inch baking dish with parchment paper.
@@ -37,6 +37,8 @@ Dipping
 1. Add the 150 grams flour and mix until fully combined.
 1. Press the dough into the prepared baking dish.
 1. Bake 20-22 minutes, until lightly golden and toasted. Remove from the oven and let cool, for at least an hour.
+
+Caramel
 1. When shortbread has been fully cooled, prepare to make the caramel. 
 1. In a medium pot, combine the can of sweetened condensed milk, 4 tbsp butter, and 2 tbsp maple syrup.
 1. Bring to a boil over medium heat, whisking consistently.
@@ -44,6 +46,8 @@ Dipping
 1. Remove from the heat and whisk in the vanilla.
 1. Immediately pour the caramel over the shortbread and spread in an even layer.
 1. Transfer to the fridge to chill, at least 1 hour or 30 minutes in the freezer but preferrably overnight.
+
+Assembly
 1. Cut the bars into 36 squares. Return to fridge or freezer for at least 10 minutes, until you are ready to dip.
 1. Prepare a tray with wax paper. 
 1. Melt the 1 tbsp coconut oil and 20 oz chocolate in the microwave until melted and smooth, stirring occasionally.

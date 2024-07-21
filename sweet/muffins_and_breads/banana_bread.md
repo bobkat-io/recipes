@@ -4,14 +4,14 @@
 
 ## Ingredients 
 
-* 1 cup light brown sugar
-* 1 cup unsalted butter, room temperature
+* 200 grams cup light brown sugar OR 200g white granulated sugar + 1 tbsp molasses
+* 1 cup / 226 grams unsalted butter, room temperature
 * 2 large eggs, room temperature
 * 3 overripe large bananas
 * 1 tablespoon milk, room temperature
 * 1 teaspoon vanilla extract
 * 1 teaspoon ground cinnamon
-* 2 cups all-purpose flour
+* 280 grams all-purpose flour
 * 1 teaspoon baking powder
 * 1 teaspoon baking soda
 * 1 teaspoon salt

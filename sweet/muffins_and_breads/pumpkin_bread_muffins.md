@@ -13,7 +13,7 @@ Muffins
 * 1/2 tsp baking soda
 * 1/2 tsp freshly grated nutmeg
 * 1/8 tsp ground cloves
-* 2 large eggs, room temp
+* 2 large eggs, room temp OR 1/2 cup unseeetened apple sauce to make the muffins vegan
 * 15-oz Libby's canned pumpkin purée
 * 1 tbsp plus 1 tsp finely grated ginger (from about one 3" piece fresh ginger)
 * 1 1/2 cups granulated sugar
@@ -31,9 +31,9 @@ Muffins
 1. Preheat oven to 375° F
 1. Fill muffin tins with 24 paper or silicon muffin liners
 1. Lightly spray the inside of muffin liners with nonstick spray
-1. Whisk 2 1/2 cups flour, 1/2 tsp cinnamon, 2 tsp kosher salt, 1 tsp baking powder, 1/2 tsp baking soda, 1/2 tsp nutmeg, and 1/8 tsp ground cloves in a medium bowl
-1. Whisk 2 eggs, 15 oz pumpkin purée, 1 tbsp + 1 tsp finely grated ginger, and 1 1/2 cups sugar in a large bowl
-1. Stream in oil to the wet mixture, whisking constantly until mixture is homogeneous
+1. Whisk 2 1/2 cups flour, 2 tsp cinnamon, 2 tsp kosher salt, 1 tsp baking powder, 1/2 tsp baking soda, 1/2 tsp nutmeg, and 1/8 tsp ground cloves in a medium bowl
+1. Whisk 2 eggs OR 1/2 cup unsweetened apple sauce, 15 oz pumpkin purée, 1 tbsp + 1 tsp finely grated ginger, and 1 1/2 cups sugar in a large bowl
+1. Stream in 1 cup olive oil to the wet mixture, whisking constantly until mixture is homogeneous
 1. Gently fold half of dry ingredients into wet mixture until no dry spots remain. Repeat with remaining dry ingredients, stirring to combine but being careful not to overmix
 1. Transfer batter to prepared muffin pan; smooth top with a spatula
 1. Scatter pumpkin seeds over batter, pressing lightly to adhere. Generously sprinkle muffins with turbinado sugar

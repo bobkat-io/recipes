@@ -5,7 +5,7 @@ Yields 24 scones
 
 ## Ingredients
 * 480 grams all purpose flour
-* 150 grams granulated sugar
+* 150 grams granulated sugar (for sweet scones)
 * 2 tsp baking powder
 * 2 tsp baking soda
 * 2 tsp salt
@@ -32,6 +32,7 @@ Yields 24 scones
 * Cheddar and chive / garlic scones
   * 1 cup shredded cheddar
   * 2 cloves crushed garlic or 1/2 cup chives
+  * NO granulated sugar, no vanilla extract
 * Piña colada scones
   * Optional: replace 3/4 cup of all-purpose flour with 3/4 cup coconut flour
   * Replace granulated sugar with light brown sugar
@@ -49,7 +50,7 @@ Yields 24 scones
 1. Do not preheat oven yet, dough needs to chill
 1. Line baking sheets with parchment paper or Silpat liner
 1. Cube the 8 tbsp butter into a bowl and refrigerate
-1. In a mixer bowl, mix together all of the dry ingredients - 480g AP flour, 150g granulated sugar, 2 tsp baking soda, 2 tsp baking powder, 2 tsp salt
+1. In a mixer bowl, mix together all of the dry ingredients - 480g AP flour, 150g granulated sugar (for sweet scones), 2 tsp baking soda, 2 tsp baking powder, 2 tsp salt
 1. With the mixer on low, add the 8 tbsp cubed butter until the chunks resemble peas
 1. Mix in any dry add-ins for your flavored scones
 1. Mix in 2 eggs, 1 cup buttermilk, 2 tsp vanilla (for sweet scones), and any wet add-ins just until barely incorporated

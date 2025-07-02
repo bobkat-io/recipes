@@ -1,7 +1,6 @@
 # Sourdough Browned Butter Chocolate Chip Cookies with Flaky Sea Salt
 
-Adapted from [this King Arthur recipe](https://www.kingarthurbaking.com/recipes/sourdough-chocolate-chip-cookies-recipe)
-This requires refrigerating the cookie dough overnight. Plan accordingly.
+This is a great use of sour dough discard. Recipe is adapted from [this King Arthur recipe](https://www.kingarthurbaking.com/recipes/sourdough-chocolate-chip-cookies-recipe). This requires refrigerating the cookie dough overnight. Plan accordingly.
 
 ## Ingredients
 * 200g unfed sourdough discard

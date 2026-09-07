@@ -1,5 +1,5 @@
 # Lemon Blueberry Cookies
-> Adapted from [Serious Eats: Soft and Chewy Sugar Cookies]([https://www.foodnetwork.com/recipes/packages/baking-guide/cookies-and-bars/50-chocolate-chip-cookies](https://www.seriouseats.com/soft-and-chewy-sugar-cookie-recipe)).
+> Adapted from [Serious Eats: Soft and Chewy Sugar Cookies](https://www.seriouseats.com/soft-and-chewy-sugar-cookie-recipe).
 
 ## Ingredients 
 - 7-8 small lemons
